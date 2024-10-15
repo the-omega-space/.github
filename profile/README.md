@@ -1,1 +1,1 @@
-# Welcome to ΩMEGA SPACE
+# Open Source beyond Software
